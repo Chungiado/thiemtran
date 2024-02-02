@@ -1,2 +1,2 @@
 # thiemtran
-kpah ver Thiem Tran
+Angelaes đã update thay thú + pét nhanh , hỗ trợ bơm HP khi giao thẻ
